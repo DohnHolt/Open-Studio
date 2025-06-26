@@ -1,3 +1,6 @@
+---
+draft=false
+---
 How do you unschool mathematics? I guess firstly knowing what unschooling is is a good start. One definition that I have been playing around with in my mind is this: creative solutions that everyone can consent to that helps move people on along the path of flourishing. 
 
 The problem of school is that it does move people along the "path of flourishing", but that path is very narrow because the ends are predetermined, therefore the path is predetermined because actually is is what it means to be flourishing that is predetermined, and actually almost no-one is happy, no-one feels like they consent to this arrangement, young people especially, but teachers also, who lament that as the curriculum becomes narrower and narrower and more prescribed, they are no longer able to exercise their creative capacities to teach and are just knowledge delivery units. 
