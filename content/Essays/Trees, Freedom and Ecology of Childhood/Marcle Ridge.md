@@ -1,1 +1,0 @@
-Place near ledbury

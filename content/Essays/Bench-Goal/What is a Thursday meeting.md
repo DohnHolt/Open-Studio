@@ -1,7 +1,0 @@
-Every Thursday afternoon at the end of our day, which is the end of our week, we have a whole community meeting where we discuss anything that has come up in the community that week. In Agile Learning Centre jargon this is called a Change Up - where we commune together to change up the culture of the community. 
-
-Sometimes the issue will be clear to everyone in the community, sometimes we even know in advance enough to prepare people that that is what we are going to talk about so they can start to formulate their ideas. Sometimes we as mentors get together briefly earlier in the day to suggest a potential topic ourselves. 
-
-But we start every meeting with a question: does anyone have anything that they want to raise for us to talk about in this meeting?
-
-If there are multiple options we see which seems the most pressing, and sometimes in the process of that question we are provided with something from left field by one of the younger people that we are not expected and we roll with it. That happened a few weeks ago when the younger children wanted to ask the older children to stop swearing so much around them and they all took it in turns to explain how the power dynamics were affecting them when children much larger than them aggressively swear in their presence.  

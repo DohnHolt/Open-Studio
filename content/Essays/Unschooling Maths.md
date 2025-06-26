@@ -1,5 +1,5 @@
 ---
-draft=false
+draft: false
 ---
 How do you unschool mathematics? I guess firstly knowing what unschooling is is a good start. One definition that I have been playing around with in my mind is this: creative solutions that everyone can consent to that helps move people on along the path of flourishing. 
 

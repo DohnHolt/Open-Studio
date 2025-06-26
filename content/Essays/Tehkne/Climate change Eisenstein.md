@@ -1,3 +1,0 @@
-Knowledge done unto is why we see the climate crisis as something to do unto. Why the focus is the numbers, the reductionist runs deep in us, we see the quantities we can manage and not the qualities we can mingle with. Degrowth is a movement that aims to slow down, to focus on those qualities that we are missing, those essences that inform the creation of possibilities - technological or otherwise - that those inclined to an aesthetic or artful sensibility might choose to pursue.
-
-And maybe even AI can help us with that. Segway into learning sprint with AI.

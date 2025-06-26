@@ -1,5 +1,0 @@
-No age can be passed through by merely standing still. And no age can be passed through by merely negating it, in favour of some previous age. 
-
-The only way out is through. What this ‘through’ will look like, however, is determined by our capacity to creatively and originally reflect on who we are and where we come from. The way through man’s current relation with technology is not by negating this relation, but by looking at the essence of this relation, by looking at the spirit that underlies our relation to technology."
-
-What both the technophile and the technophobe claim is that society is warped, bent out of the shape of the good into a parabola. But they both claim that we sit here in the present at the turning point of the curve, for the technophobe this turning point is a minimum, only more tech can save us, for the technophile it is a maximum, we must retreat back along the curve to some recoverd past. But both sit ignorant of the present. 
