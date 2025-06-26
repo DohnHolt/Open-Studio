@@ -1,0 +1,8 @@
+Response to [[It's time to build]]
+
+
+Economist Alfred O. Hirschman describes two options when faced with a bad situation, from a job you don’t like to a flailing relationship: voice your concerns and attempt to fix the situation, or exit and start from scratch. In Silicon Valley, the default inclination for solving problems is to build a new technology and start a company around it. And there’s an instinct to apply the same attitude to government: opt out. In one speech, Balaji Srinivasan argued that Silicon Valley’s “ultimate exit” would be “an opt-in society, ultimately outside the US, run by technology.” Justifiably frustrated with broken institutions, these disillusioned technologists prefer to to start from scratch.  
+  
+But even if it’s dysfunctional, the US government matters now. When a pandemic strikes, we need to be able to manufacture and distribute vaccines and code functioning websites to sign up for them. It would be a missed opportunity not to influence how government agencies - with multibillion dollar budgets - invest in technology. Technologists should certainly experiment with new forms of governance like crypto. But others should work to influence the government we still have.  
+  
+It’s time to build... better relationships between the Valley and D.C. Even if our government doesn't make it easy, the biggest problems of the 2020s invite us technologists to choose voice over exit in the US government.

@@ -1,0 +1,8 @@
+Just consider, by way of just another, less personal, example, what it would mean to _meaningfully_ reform schooling, so that children could learn their culture in the manner they have learnt it for hundreds of thousands of years, by _directly_ participating in it. In order for this to work everything would have to change — all of society would have to become educational; it would have to become a place that children can learn from, rather than a place they can do nothing but passively observe. And when I say ‘educational’ I mean meaningfully educational; allowing children to discover who they are, rather than forcing them to do what the system requires. What’s more, all the system-made distractions and addictions which would instantly absorb the attention of children allowed to live freely would have to be removed from their lives. All of this would mean the total disintegration of every aspect of the system.
+
+---
+
+What’s more, _who_ is to decide how all this technology is used? It’s ridiculous enough to make the claim that we have ‘a choice’ about how we can use bucket-wheel excavators, it’s even more stupid to assert that the technological system which demands the use of such machines is ‘neutral’, but even given these fantastic assumptions, there is nothing in the training of scientists and engineers to enable them to decide how hyper-complex machines can be used, nor can there be; as not only can morality never be found in technical (‘scientific’) education, but is a threat which is and must be eradicated _by_ that education. So what if technology is ‘neutral’ when those with power over it are _guaranteed_ never to be able to use it wisely?
+
+https://expressiveegg.substack.com/p/the-technological-system?utm_source=pocket_saves
+

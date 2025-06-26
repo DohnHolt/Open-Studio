@@ -1,0 +1,1 @@
+When an accident occurs that causes harm we take everybody's agency  into account, when violence is perceived as intentional agency starts at the pojnt of the violence being chosen.

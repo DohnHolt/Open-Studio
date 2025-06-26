@@ -1,0 +1,1 @@
+Greek philosopher (Heraclitus) on flux. Chinese thought in taoism.

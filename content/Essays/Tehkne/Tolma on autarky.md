@@ -1,0 +1,3 @@
+It should not be taken lightly, that the age of exploration precedes the new conception of subjectivity brought forth by men like Descartes. If man needs nothing except for himself to thrive, then he can go everywhere, and he will thrive. It is a feeling of independence, autarchy, quite Stoic too; all the world is my home, for wherever I am, I am home. And wherever I am, God follows.
+
+https://tolma.substack.com/p/age-of-reason-age-of-daring?utm_source=post-email-title&publication_id=437528&post_id=116496484&isFreemail=true&utm_medium=email

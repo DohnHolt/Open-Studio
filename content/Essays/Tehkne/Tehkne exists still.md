@@ -1,0 +1,3 @@
+There are people who still have a sense of tehkne, a purpose and foresight to make the world a better place. Browse low-tech magazine for inspiration, read Schumacher's Small is Beautiful, watch the film about the wind turbine. And even within AI there are people who want to use it for better, the examples of khan academy and wolfram alpha in Henrik Karlsson's piece spring to mind. 
+
+Engineers without borders

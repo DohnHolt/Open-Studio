@@ -1,0 +1,1 @@
+Resolution means end, at new years means beginning.

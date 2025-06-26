@@ -1,0 +1,3 @@
+She argues on the one hand that rapid technological change creates a special need for moral virtues to guide us in choosing among our many possible futures, and in managing new and unexpected opportunities and hazards. On the other hand, she argues that changes in technology create new challenges to the cultivation of virtue itself which call for wise and creative responses.
+
+https://ndpr.nd.edu/reviews/technology-and-the-virtues-a-philosophical-guide-to-a-future-worth-wanting/
