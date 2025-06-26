@@ -12,4 +12,8 @@ I invite you to wander through my thoughts. In case you have never interacted wi
 
 However, as you will see each note has a tag #notereview. In my obsidian vault that is a tag to trigger the notes to come back to me randomly through a spaced repetition software. A finished note is only finished in the sense that it felt like I had written everything I could at that moment. Reviewing and fleshing out notes is part of the process of keeping evergreen notes. Each note here is just a snapshot of my thoughts the moment that I hit send, by the time you have read them they might be slightly out of sync with how I feel currently. I will likely come back to it and edit it as I refine my thinking. 
 
+Within some notes you may hover over a hyeprlink to another note and it may return a note not available, this note is likely currently in progress; percolating around the meat in my skull and soon to be uploaded. 
+
 In the spirit of working with the garage door up I invite you to comment as much as you want across this site. I wish my thoughts to be challenged, your collective reckoning is the quickest path to me refining my thinking. 
+
+Feel free to reach out to me at tim.d.rutherford@gmail.com
