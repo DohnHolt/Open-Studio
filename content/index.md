@@ -1,6 +1,8 @@
 ---
-title: Welcome to Quartz
+title: Open Studio: Deschooling in Public
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Welcome. This site hold two main functions. It holds the essays that I have written on self-directed education and hosts my digital garden. 
+
+
+
